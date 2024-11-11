@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YeseniaVivar
+- 👀 I’m interested in graphic design
+- 🌱 I’m currently learning graphic design
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: i like pineapple
